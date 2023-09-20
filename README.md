@@ -1,1 +1,1 @@
-# lampadazinha.io
+# lampadazinha-gamezinho.io
